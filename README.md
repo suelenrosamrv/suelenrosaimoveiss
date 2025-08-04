@@ -83,7 +83,7 @@ O site apresenta diversos empreendimentos com:
 ## 📞 Contato
 
 - **Corretora**: Suelen Rosa
-- **Email**: suelen_rosa@gmail.com
+- **Email**: suelenrosa.mrv@gmail.com
 - **Telefone**: (43) 98870-7994
 - **WhatsApp**: (43) 98842-3605
 
